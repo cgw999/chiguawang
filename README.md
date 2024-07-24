@@ -1,5 +1,5 @@
 最新地址:
-👋免翻墙入口：https://cgw39.com
+👋免翻墙入口：https://cgw40.com
 
 👀备用入口：https://cgw.2s95at7.com
 
