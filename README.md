@@ -1,5 +1,5 @@
 最新地址:
-👋免翻墙入口：https://cgw41.com
+👋免翻墙入口：https://cgw42.com
 
 👀备用入口： https://du6zc6mi8t4vh.cloudfront.net/
 
